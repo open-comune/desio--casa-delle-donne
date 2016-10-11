@@ -55,3 +55,5 @@ Si pensa ad una organizzazione per "gruppi di lavoro" relativi alle diverse tema
 Per ciascun gruppo di lavoro sarà individuata una responsabile che si occuperà della organizzazione temporale e logistica, armonizzata con le altre attività.
 
 Si propone per un periodo sperimentale l'apertura "libera" della casa il sabato dalle ore 15,00 alle ore 18.00
+
+[fonte](/proposta-di-progetto.pdf)
