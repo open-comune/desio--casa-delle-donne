@@ -19,3 +19,9 @@ Vedi la [Proposta di Progetto](/proposta-di-progetto.md) per maggiori dettagli.
 ## Licenza
 
 [CC-BY-4.0](https://creativecommons.org/licenses/by/4.0/)
+
+## News
+
+[![Far nascere una #casadelledonne in Città merita un selfie, fa niente se viene male](https://pbs.twimg.com/media/CueAhn8WcAAuMgF.jpg)](https://twitter.com/marievafavoino/status/785738006841978880)
+
+> Far nascere una #casadelledonne in Città merita un selfie, fa niente se viene male ❤️ #cosebelle cc [@WISTERWISTER](https://twitter.com/WISTERWISTER)
