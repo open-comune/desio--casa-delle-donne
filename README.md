@@ -22,6 +22,8 @@ Vedi la [Proposta di Progetto](/proposta-di-progetto.md) per maggiori dettagli.
 
 ## News
 
+- [Consegna delle chiavi](/news/2016-10-14_consegna-chiavi.md)
+
 [![Far nascere una #casadelledonne in Città merita un selfie, fa niente se viene male](https://pbs.twimg.com/media/CueAhn8WcAAuMgF.jpg)](https://twitter.com/marievafavoino/status/785738006841978880)
 
 > Far nascere una #casadelledonne in Città merita un selfie, fa niente se viene male ❤️ #cosebelle cc [@WISTERWISTER](https://twitter.com/WISTERWISTER)
