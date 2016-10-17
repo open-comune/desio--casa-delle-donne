@@ -1,5 +1,7 @@
 # Casa delle donne (Desio)
 
+[Via Lampugnani 80, 20832 Desio](https://www.google.it/maps/place/Via+Giovanni+Maria+Lampugnani,+80,+20832+Desio+MB/@45.6180717,9.2137613,17z/data=!3m1!4b1!4m5!3m4!1s0x4786bc1752c722ef:0x271348b44be4ad49!8m2!3d45.618068!4d9.21595?hl=it)
+
 Una casa, uno spazio aperto, accogliente e inclusivo per:
 
 - favorire l’incontro tra donne di tutte le età e di tutte le culture
