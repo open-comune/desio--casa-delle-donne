@@ -1,6 +1,10 @@
 # Casa delle donne (Desio)
 
+## Dove
+
 [Via Lampugnani 80, 20832 Desio](https://www.google.it/maps/place/Via+Giovanni+Maria+Lampugnani,+80,+20832+Desio+MB/@45.6180717,9.2137613,17z/data=!3m1!4b1!4m5!3m4!1s0x4786bc1752c722ef:0x271348b44be4ad49!8m2!3d45.618068!4d9.21595?hl=it)
+
+## Cosa
 
 Una casa, uno spazio aperto, accogliente e inclusivo per:
 
@@ -18,11 +22,9 @@ Una casa, uno spazio aperto e accogliente e inclusivo dove:
 
 Vedi la [Proposta di Progetto](/proposta-di-progetto.md) per maggiori dettagli.
 
+## Link
+
 [Pagina Facebook non ufficiale](https://www.facebook.com/pages/Casa-delle-Donne-Desio/164068930665163)
-
-## Licenza
-
-[CC-BY-4.0](https://creativecommons.org/licenses/by/4.0/)
 
 ## News
 
@@ -31,3 +33,7 @@ Vedi la [Proposta di Progetto](/proposta-di-progetto.md) per maggiori dettagli.
 [![Far nascere una #casadelledonne in Città merita un selfie, fa niente se viene male](https://pbs.twimg.com/media/CueAhn8WcAAuMgF.jpg)](https://twitter.com/marievafavoino/status/785738006841978880)
 
 > Far nascere una #casadelledonne in Città merita un selfie, fa niente se viene male ❤️ #cosebelle cc [@WISTERWISTER](https://twitter.com/WISTERWISTER)
+
+## Licenza
+
+[CC-BY-4.0](https://creativecommons.org/licenses/by/4.0/)
