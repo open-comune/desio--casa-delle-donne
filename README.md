@@ -16,6 +16,8 @@ Una casa, uno spazio aperto e accogliente e inclusivo dove:
 
 Vedi la [Proposta di Progetto](/proposta-di-progetto.md) per maggiori dettagli.
 
+[Pagina Facebook non ufficiale](https://www.facebook.com/pages/Casa-delle-Donne-Desio/164068930665163)
+
 ## Licenza
 
 [CC-BY-4.0](https://creativecommons.org/licenses/by/4.0/)
