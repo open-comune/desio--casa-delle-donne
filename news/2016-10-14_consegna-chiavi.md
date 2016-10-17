@@ -1,0 +1,7 @@
+2016-10-14
+
+[fonte](https://www.facebook.com/Comune.di.Desio/posts/1185629308188224)
+
+> dopo la delibera dello scorso giugno, consegnate lunedì in Comune le chiavi della [Casa delle Donne - Desio](https://www.facebook.com/pages/Casa-delle-Donne-Desio/164068930665163) alle associazioni che si sono prese il compito di 'aprirla' alla Città a brevissimo. 
+> "Le donne che ho incontrato lunedì sera - racconta l'assessore alle Pari Opportunità Paola Buonvicino - sono già da tempo impegnate sui temi della inclusività della nostra città rispetto al genere femminile e, tutte, hanno sottolineato l’importanza della disponibilità di un luogo fisico per incontarsi e coinvolgere nella progettazione delle attività e degli obiettivi della Casa delle Donne di Desio, le tante competenze e risorse che esprime il nostro territorio .
+> Le donne dell' [Associazione L'Annaffiatoio](https://www.facebook.com/AssociazioneAnnaffiatoio/), del Centro Culturale Lazzati - sez. di Desio e del Comitato [Desio Città Aperta](https://www.facebook.com/desio.cittaaperta/) sono molto operative e non vedono l’ora di ‘aprire’. Per questo invitano tutte e tutti a un primo momento di conoscenza e testimonianza concreta di appoggio al progetto, in programma per il pomeriggio di sabato 22 ottobre, nell’ambito di [Il Mondo delle Idee](https://www.facebook.com/events/320392821651103/), dove sarà allestito un banchetto per la vendita di borse, bigiotteria e piccoli oggetti etnici finalizzata a una piccola raccolta fondi, utile all’acquisto di materiali per la Casa.
